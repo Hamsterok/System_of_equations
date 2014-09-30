@@ -28,3 +28,6 @@ So from your course I expect to hear again all about js from experienced people 
 Hope to receive your invitation.
 
 PS: I do want to visit every lesson from start to end, and not going to vanish in the middle of the course. Firstly becouse of it is clear that organizators invest a lot to them and secondary the last 3 lessons seems most intetesting for me.
+
+===================
+Desided to share some of my hobbies: like listening metal music, visiting live shows both here in Kiev and foreign ones, ski, roller skates, bicycle, video games ( mostly rpg and strategy, spent a TONS of time at starcraft 2), learning to play piano.
